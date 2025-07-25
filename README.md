@@ -29,6 +29,7 @@ Here are some ideas to get you started:
 
 - 🤹 I studied circus arts for 12 years and specialized in juggling and diabolo.
 - 🌳 I love being in contact with nature.
+- 👾 I'm a Nintendo fan, I have every Pokemon and Zelda game.
 - 🐱 I love cats and fennecs, but I don't have any fennec, sad.
 - 🌱 I'm growing some chili pepper plants at my house.
 - 💬 I like to discuss how politics can improve the world and especially schools.
